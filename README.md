@@ -1,0 +1,4 @@
+- 👋 Hi, "polapain" (guys)
+- in 2027, there will be a legal mafia of cyber.... and i will lead them
+- 🌱 I’m currently learning cybersecurity
+- be free to knock me at any kind of work btw i am still lerning😙
